@@ -15,4 +15,5 @@ I'm a M.Sc. student in the Molecular Neuroscience track. I'm working in Prof. La
 
 
 ## His highness:
-![](https://github.com/user-attachments/assets/f040d398-5df5-4c69-b805-7bba91378746)
+
+![](https://github.com/user-attachments/assets/eb4e2484-082e-4b8a-b695-8f4e40bba054)
