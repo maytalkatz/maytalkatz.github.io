@@ -12,4 +12,4 @@ I'm a M.Sc. student in the Molecular Neuroscience track. I'm working in Prof. La
 
 
 
-![His highness](Loki)
+![His highness:](https://github.com/user-attachments/assets/f040d398-5df5-4c69-b805-7bba91378746)
