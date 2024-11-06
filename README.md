@@ -3,7 +3,7 @@
 
 
 ## Personal information:
-My name is *Maytal Katz*, I was born in the United stated and raised in Rehovot, Israel. I always loved hiking in nature and I would never skip on an opportunity to travel abroad. I love meeting new people, learning words in different languages and learning about different cultures.
+My name is *Maytal Katz*, I was born in the United stated and raised in Rehovot, Israel. I always loved hiking in nature and I would never skip an opportunity to travel abroad. I love meeting new people, learning words in different languages and learning about different cultures.
 I have a cat named Loki, keep scrolling to see his highness.
 
 
